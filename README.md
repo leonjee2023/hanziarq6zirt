@@ -1,1 +1,0 @@
-# hanziarq6zirt
